@@ -1,2 +1,2 @@
 # space-hitchiker
-Still figuring it out
+I spelled hitchhiker wrong what a dumb ass
